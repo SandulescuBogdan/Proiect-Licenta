@@ -1,1 +1,1 @@
-# SandulescuBogdan
+# Proiect Licenta
